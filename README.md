@@ -1,1 +1,1 @@
-I like Wednesday
+I don't like Wednesday anymore
